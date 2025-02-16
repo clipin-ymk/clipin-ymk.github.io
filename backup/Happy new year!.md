@@ -1,3 +1,3 @@
 # Happy new year from Witt & Welda!
 
-![Image](https://github.com/user-attachments/assets/3a86f0fe-154b-46fd-a024-92f6e78a8d09)
+![Image](https://github.com/user-attachments/assets/ab8fa59a-4377-4fc7-8d7b-528e572fd304)
