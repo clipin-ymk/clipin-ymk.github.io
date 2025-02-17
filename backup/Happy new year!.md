@@ -1,5 +1,5 @@
 # Happy new year from Witt & Welda!
 
 <div align=center> 
-<img src="https://github.com/user-attachments/assets/ab8fa59a-4377-4fc7-8d7b-528e572fd304" width = 75% height = 75% />
+<img src="https://github.com/user-attachments/assets/ac588ba0-85fd-4ce4-b35e-9c8b573114d9" width = 50% height = 50% />
 </div>
